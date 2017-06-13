@@ -12,10 +12,12 @@ In order to get a good grasp of the show, I listened to four episodes, ranging f
 The segment starts off with some banter between the hosts before establishing the topic of discussion and a quick summary of the story and the universe it takes place in. For this particular episode, the hosts discuss how the viewers in the Truman Show's universe were comfortable watching a brainwashed man living a fake life controlled by a television network.
 
 ### *The Ethical Dilemmas of Azkaban*
+Just like the episode prior, the segment starts with some banter and then a quick summary of Harry Potter and the role of Azkaban in the books. The hosts touch on an array of topics, from the role of the dementors, to the absence of truth serums in trials, to the question of lifelong torture over the death penalty. The hosts are very charming and fun to listen to, and they bring up some interesting points. It's hard to listen to 38 minutes of straight ad-lib discussion though.
 
 ### *Which is the Worst Fictional Afterlife?*
 
 ### *How Would You Survive the Game of Thrones?*
+It's worth mentioning now that each episode starts with the topic's theme or soundtrack. Since this episode is Game of Thrones, they used the intro theme to kick off the episode. Banter, summary of show, etc. thus follows. This episode is more of a conglomeration of a bunch of different topics related to Game of Thrones, not just the titular question. They take turns outlining absurd ways they would survive Westeros, like become a dragon or something crazy. I'm a little disappointed; I was looking for some solid advice.
 
 ## General Analysis
 ### Speakers and Interviews
